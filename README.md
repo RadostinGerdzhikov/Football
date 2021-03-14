@@ -3,17 +3,14 @@
  ## Contributors from Bulgaria
 
 - Pesho
-- Idia footbal is like funny joke
-- The Purchush football tem is created form the most supid people of the 
+- Idia footbal is like funny cake
+- The Purchush football tem is created form the most smart people of the 
 word
 
 
  ## Contributors From India
-  Prakuchik Koromaranik
+- Prakuchik Koromaranik
 
-- Bebatov is most stupid player all the tiem.
 
-- Gargamuk Koromaranik
 
-- The most popular sport in Asia is Parkur
 
