@@ -1,5 +1,10 @@
 # Football
-Test repo
- ## COntributors
--Pesho
--Prakach
+
+ ## Contributors from Bulgaria
+
+- Pesho
+
+
+ ## Contributors From India
+
+ - Prakuchik Koromaranik
